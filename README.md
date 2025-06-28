@@ -1,8 +1,8 @@
 # zzsj掌中世界加速器官网地址 + 最新优惠码
 
-永久官网：[zzsjjsq.com](https://www.zzsjjsq.com/user/register?code=AeZOm0ac)
+永久官网：[zzsjjsq.com](https://www.zzsj3.com/user/register?code=AeZOm0ac)
 
-备用地址：[zzsj.vip](https://www.zzsj2.com/user/register?code=AeZOm0ac)
+备用地址：[zzsj.vip](https://www.zzsj4.com/user/register?code=AeZOm0ac)
 
 > 掌中世界跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
 > 另外没有啥绝对好坏，一线机场也会炸，小机场也可能岁月静好。
